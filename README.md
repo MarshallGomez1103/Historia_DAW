@@ -30,6 +30,8 @@ complicarse ya que las hordas no paraban de llegar y las
 balas se empezaron a acabar...
 
 
-
+##ANUNCIO
+ 
+No te pierdas la proxima entrega de Sombras de Liberty Falls.
 
 
